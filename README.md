@@ -1,3 +1,3 @@
 # taksokotomysh
 Online ver.
-http://sobakun.gq/taksokotomysh/
+http://sobaht.ml/taksokotomysh/
