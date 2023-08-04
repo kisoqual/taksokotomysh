@@ -1,3 +1,3 @@
 # taksokotomysh
 Online ver.
-http://sobaht.ml/taksokotomysh/
+http://so.bang.cl/taksokotomysh/
